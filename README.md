@@ -8,6 +8,8 @@ Hi Tom, deine Änderungen sind alle eingebaut.
 
 Neu sind unter anderem dein Porträt, die DocFinder-Bewertung 5,0 prominent auf der Startseite, die Empfehlungen zu Vera, den Gesundheitsexperten und Be Active, die neuen Texte und dein aktualisierter Lebenslauf. „Prim.“ ist überall raus.
 
+Außerdem habe ich deine Auszeichnung **KURIER „Beliebte Ärzte 2026“** (Orthopädie, Unfallchirurgie & Physikalische Medizin, NÖ) auf der Startseite und bei „Zur Person“ ergänzt.
+
 ## Zwei kurze Fragen dazu
 
 1. Bei der Sportbetreuung habe ich beide Zeilen „seit 2011“ auf „2011“ geändert. Gilt das auch für die Betreuung der Profisportler, oder machst du die noch?
